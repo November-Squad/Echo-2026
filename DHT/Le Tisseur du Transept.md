@@ -2,7 +2,7 @@
 
 *Codex Vauvillensis, Fragment Ω-7 — version Gibson*
 
-Nov 24, 2026 · @November Squad
+Nov 24, 2026 · @November-Squad
 
 ## I. Le Gaïalithe
 
